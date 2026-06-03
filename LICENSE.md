@@ -1,4 +1,4 @@
-# 
+# Actualizado uniswap trading bot complementos para Mac OS | Premium uniswap trading bot complementos para PC Windows. Con arbitraje estadístico y creación de mercado — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
